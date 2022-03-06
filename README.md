@@ -20,3 +20,5 @@ cya niggers
 <img src="https://media.discordapp.net/attachments/829507168142884874/950126216185266186/unknown.png?width=719&height=82">
 <br><br>
 <a href="https://app.any.run/tasks/fac3aa5f-110d-4b58-8dde-011976baf553">any.run test</a>
+<br>
+<a href="https://any.run/report/c3d408ccb170219bf52f1dedbc24f02595110b28bbc34adcba6c39ec3a027e00/fac3aa5f-110d-4b58-8dde-011976baf553">any.run report</a>

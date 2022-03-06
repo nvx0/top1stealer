@@ -1,4 +1,4 @@
 # top1stealer
 High IQ stealer src
 <br><br>
-<img src="![image](https://user-images.githubusercontent.com/80093182/156940520-ac8792c9-b7ec-47f8-b1fc-29fe56f2a218.png)">
+<img src="![image](https://media.discordapp.net/attachments/829507168142884874/950122115443593236/rat.png?width=719&height=459)">

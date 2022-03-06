@@ -1,6 +1,10 @@
 # top1stealer
 High IQ stealer src
 <br>
+<br>
+MD5 => 3c4579c082cbc74efae98871d20cc5a0
+<br>
+<br>
 shit even ain't coded correctly and it doesn't even dump passwds lmao
 <br>
 wrote in python 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣

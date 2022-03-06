@@ -29,8 +29,16 @@ cya niggers
 <br><br>
 <img src="https://media.discordapp.net/attachments/829507168142884874/950126216185266186/unknown.png?width=719&height=82">
 <br><br>
+<img src="https://media.discordapp.net/attachments/829507168142884874/950126444946812968/unknown.png">
+<br><br>
+<img src="https://media.discordapp.net/attachments/829507168142884874/950126546339897354/unknown.png">
+<br><br>
+<img src="https://media.discordapp.net/attachments/829507168142884874/950126912477462528/unknown.png?width=719&height=103">
+<br><br>
+<img src="https://media.discordapp.net/attachments/829507168142884874/950128549434638437/unknown.png?width=719&height=234">
+<br><br>
 <a href="https://app.any.run/tasks/fac3aa5f-110d-4b58-8dde-011976baf553">any.run test</a>
 <br>
 <a href="https://any.run/report/c3d408ccb170219bf52f1dedbc24f02595110b28bbc34adcba6c39ec3a027e00/fac3aa5f-110d-4b58-8dde-011976baf553">any.run report</a>
 <br>
-<a href="https://www.toneden.io/thisesteb/post/discord-account-creator">original link</a>
+<a href="https://www.toneden.io/thisesteb/post/discord-account-creator">original link (mf wants sub for stealer)</a>

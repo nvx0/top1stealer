@@ -4,6 +4,8 @@ High IQ stealer src
 shit even ain't coded correctly and it doesn't even dump passwds lmao
 <br>
 wrote in python 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+<br>
+if you find anything intresting in this shit contact me: cloudzik@gazeta.pl
 <br><br>
 <img src="https://media.discordapp.net/attachments/829507168142884874/950122115443593236/rat.png?width=719&height=459">
 <br><br>

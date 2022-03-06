@@ -1,3 +1,4 @@
 # top1stealer
 High IQ stealer src
-<img src="https://app.any.run/tasks/fac3aa5f-110d-4b58-8dde-011976baf553">
+<br><br>
+<img src="![image](https://user-images.githubusercontent.com/80093182/156940520-ac8792c9-b7ec-47f8-b1fc-29fe56f2a218.png)">

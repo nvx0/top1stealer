@@ -42,3 +42,5 @@ cya niggers
 <a href="https://any.run/report/c3d408ccb170219bf52f1dedbc24f02595110b28bbc34adcba6c39ec3a027e00/fac3aa5f-110d-4b58-8dde-011976baf553">any.run report</a>
 <br>
 <a href="https://www.toneden.io/thisesteb/post/discord-account-creator">original link (mf wants sub for stealer)</a>
+<br>
+<a href="https://www.toneden.io/api/v1/attachments/6062500/download">DL (unsafe)</a>

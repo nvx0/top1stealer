@@ -4,6 +4,16 @@ High IQ stealer src
 <br>
 MD5 => 3c4579c082cbc74efae98871d20cc5a0
 <br>
+MIME => application/x-dosexec
+<br>
+File info => PE32 executable (console) Intel 80386, for MS Windows
+<br>
+SHA1 => 1F7974C030D666CF61A912193852FCE3EBF58DC5
+<br>
+SHA256 => C3D408CCB170219BF52F1DEDBC24F02595110B28BBC34ADCBA6C39EC3A027E00
+<br>
+SSDEEP => 393216:2HBGGP1KWCTEW6EW3IMTYKJQLPYKOV3UWTJ4ID8H:2HBN1ATE3REU0TOV3NJ
+<br>
 <br>
 shit even ain't coded correctly and it doesn't even dump passwds lmao
 <br>

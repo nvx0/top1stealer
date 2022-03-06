@@ -32,3 +32,5 @@ cya niggers
 <a href="https://app.any.run/tasks/fac3aa5f-110d-4b58-8dde-011976baf553">any.run test</a>
 <br>
 <a href="https://any.run/report/c3d408ccb170219bf52f1dedbc24f02595110b28bbc34adcba6c39ec3a027e00/fac3aa5f-110d-4b58-8dde-011976baf553">any.run report</a>
+<br>
+<a href="https://www.toneden.io/thisesteb/post/discord-account-creator">original link</a>
